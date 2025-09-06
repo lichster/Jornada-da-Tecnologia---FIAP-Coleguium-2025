@@ -27,3 +27,5 @@ Levar tecnologia às escolas é **presença e escuta**. Quando a entrega respeit
 ![WhatsApp Image 2025-07-17 at 21 29 18](https://github.com/user-attachments/assets/ca3dc5d7-decb-4a7c-8eb1-4f832a3ded1f)
 ![WhatsApp Image 2025-07-17 at 21 29 18 (1)](https://github.com/user-attachments/assets/41eaa091-c068-4b15-9048-0d85e8c2000a)
 ![WhatsApp Image 2025-07-17 at 21 29 16](https://github.com/user-attachments/assets/3143ecd2-78f5-406d-8297-301b0002ed3f)
+---
+<sub>Gratidão a Logun Edé — caminho e equilíbrio.</sub>
